@@ -1,4 +1,4 @@
-![Header]([https://imgur.com/a/o0hQmZq])
+![Header](https://imgur.com/a/o0hQmZq)
 
 # 👋 Hi there! I'm Carlos Aguayo
 
