@@ -18,4 +18,6 @@
 - [LinkedIn](https://www.linkedin.com/in/carlos-aguayo-62808a2a9/)
 - 📧 [carlosraulaguayo@gmail.com]
 
+![Header](https://imgur.com/a/o0hQmZq)
+
 Thanks for stopping by! 😊
